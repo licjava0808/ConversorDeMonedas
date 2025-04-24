@@ -47,10 +47,21 @@ Incluye una captura o GIF del programa en ejecución si deseas aumentar el impac
 
 ![image](https://github.com/user-attachments/assets/4e847623-d81d-487a-9f71-dc7c0b48bc94)
 
+![image](https://github.com/user-attachments/assets/fc4a09e5-d7f4-4396-bb17-881b4dcd554d)
+
+![image](https://github.com/user-attachments/assets/699564e9-109c-4eca-90d9-d34410722cd1)
+
+![image](https://github.com/user-attachments/assets/5aa37202-ee81-4583-960e-3e903440b78e)
+
+![image](https://github.com/user-attachments/assets/97d37ee8-5bb3-4c43-b3b1-7fa85dc8212f)
+
+![image](https://github.com/user-attachments/assets/1669ede5-fb48-4f90-b867-049e1ee1f1a6)
+
+![image](https://github.com/user-attachments/assets/2fcb4c7a-ee3d-4222-bddd-bf57efd8ab5d)
 
 
+👨‍💻 Autor:
 
-👨‍💻 Autor
 Johanny Agustin Valdez Almanzar
 
 
